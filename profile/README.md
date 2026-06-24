@@ -1,4 +1,4 @@
-# My Wife Refuses To Go To Marriage Counseling: What To Do When Your Spouse Won't Go To Counseling
+# My Wife Refuses To Go To Marriage Counseling (What To Do When Your Spouse Won't Go To Counseling)
 
 There is a specific kind of loneliness that comes from sitting across from your spouse, knowing your marriage is hurting, and realizing you cannot fix it alone. You have tried to talk. You have tried to stay quiet. You have suggested getting help together, and she said no. Maybe she said it once. Maybe she has said it multiple times, in multiple ways. Either way, you are here, still trying to figure out what to do next, and that matters more than you know. The fact that you are looking for answers, instead of walking away, says a lot about who you are and what your marriage still means to you.
 
